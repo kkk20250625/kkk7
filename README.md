@@ -31,7 +31,7 @@
 
 点击访问：<a href="https://hl386.pages.dev/">抖音黑料</a>
 
-点击访问：<a href="https://hl395.pages.dev/">黑料网/a>
+点击访问：<a href="https://hl395.pages.dev/">黑料网</a>
 
 点击访问：<a href="https://hl389.pages.dev/">每日分享最新飘雪影院在线观看高清电影</a>
 
